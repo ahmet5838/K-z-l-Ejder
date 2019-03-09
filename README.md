@@ -1,1 +1,1 @@
-# K-z-l-Ejder
+Bot bana aitdir fakat kodlarını paylaşamıycam.
